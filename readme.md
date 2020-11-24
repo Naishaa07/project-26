@@ -1,1 +1,1 @@
-This fairly easy recipe will teach you how to make lemonade, a very refreshing and hydrating drink which requires extremely basic ingredients. It is one of the most convenient and prefered drinks on a hot sunny day.
+This fairly easy recipe will teach you how to make lemonade, a very refreshing and hydrating drink which requires extremely basic ingredients. It is one of the most convenient and preferred drinks on a hot sunny day.
